@@ -1,0 +1,1 @@
+# simbol_olimpico
